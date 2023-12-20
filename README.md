@@ -1,0 +1,1 @@
+# Soligence_App_for_Crypto_Prediction
